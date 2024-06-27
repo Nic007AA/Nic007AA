@@ -1,16 +1,19 @@
-## Hi there 👋
+## Hi there 😃
 
-<!--
-**Nic007AA/Nic007AA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Nicolas e eu serei o rei mago🌀
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+-Esse perfil é "teste" não sei direito como definir
+
+
+-Eu gosto de ler e jogar
+
+
+-Odeio chiclete
+
+
+Caso tenha que entrar em contato comigo... não entre. 
+
+## email📬 00001084553107@al.educacao.sp.gov.br
